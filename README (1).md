@@ -1,0 +1,6 @@
+# DICTIONARY
+PYTHON 
+
+VIDEO OF HOW I DO MY DICTIONARY
+https://youtu.be/lwwUExBjC58
+
